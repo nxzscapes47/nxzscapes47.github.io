@@ -1,2 +1,4 @@
-# nxzscapes47.github.io
-nxzscapes's pages
+# nxzscape's github
+
+> [!IMPORTAN]
+> Repo Ini Dibuat Berdasarkan Kebutuhan Saya Sendiri
